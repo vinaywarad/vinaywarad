@@ -1,2 +1,2 @@
-# VInay-warad
+# vinay-warad
 My GitHub Profile
